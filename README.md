@@ -1,7 +1,7 @@
-# Prueba-Unir-2026
-Lo usare para practicar
-Ojala lo haga no tan mal
-# asi se pone sub titulo
+# Para que te saques de foco a los creidos!!
+Pones los alcances del proyetco
+Agregas en que consiste, caracteristicas, etc
+# Se puede editar y lo chevere es que cuando lo mandes veran quien trabaja mas jejejeje
 **y asi con negrita**
 
 **negrita sera asi**! ??
